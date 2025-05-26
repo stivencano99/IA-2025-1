@@ -7,4 +7,5 @@ Jose Stiven Cano Murillo - 1017226322 - Ing. DE MATERIALES
 Camilo Andres Carrascal Colon - 1234991421 - Ing. Civil
 
 **Entrega 2**
+
 Link video: https://youtu.be/u1tukTxreGM
